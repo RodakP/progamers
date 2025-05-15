@@ -9,4 +9,4 @@
 </p>
 </div>
 
-![Progamers](https://github.com/user-attachments/assets/5505cdd8-1044-4b99-8a61-f5a3fae03ba5)
+![Screenshot 2025-05-15 at 13-23-06 ProGamers](https://github.com/user-attachments/assets/9bb49c14-8bf7-49f5-8111-87ed01c94d08)
